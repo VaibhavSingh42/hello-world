@@ -1,2 +1,2 @@
 # hello-world
-starting 
+starting well im here just to learn and not waste away my time 
